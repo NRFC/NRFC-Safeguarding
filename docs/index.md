@@ -1,45 +1,34 @@
-# Norwich Rugby Football Club Safeguarding Policy
+# NRFC Safeguarding
 
-Because children are the future of rugby football it is important that we help them understand rugby union’s values from an early age and set the highest standards as role models, while ensuring their safety and wellbeing.
+[Club Policy](nrfc-safeguarding-policy.md) |
+[Volunteeing](volunteering.md) |
+[RFU Safeguading toolkit](safeguardingtoolkit.pdf) |
+[Incident Report Form](RFU_SafeguardingReferral_Form.pdf) |
+[RFU Safeguarding](https://www.englandrugby.com/governance/safeguarding)
 
-We aim to help all players to achieve their full potential regardless of age, standard or ability, and by doing this we aim to promote and develop rugby football within the community and encourage maximum participation and enjoyment at all levels
+Safeguarding means ‘keeping safe’. It covers all aspects of keeping children safe in our club. It is a vital part of what we do in the club at all times. It includes:
 
-1. Norwich Rugby Football Club acknowledges its responsibility to safeguard the welfare of all children involved in Norwich Rugby Football Club from harm.
-1. Norwich RFC confirms that it adheres to the Rugby Football Union’s Safeguarding Policy and the procedures, practices and guidelines and endorse and adopt the Policy Statement contained in that document and any successor policy. All safeguarding concerns will be reported to the RFU Safeguarding team who may require a person, a player or the club to provide information or attend a meeting.
-1. A child is anyone under the age of 18 engaged in any rugby union activity.  However, where a 17 year old male player is playing in the adult game it is essential that every reasonable precaution is taken to ensure his safety and wellbeing are protected.
-1. The Key Principles of the RFU Safeguarding Policy are that:
-  1. The welfare of the child is, and must always be, paramount to any other considerations.
-  1. All participants regardless of age, gender, ability or disability, race, faith, culture, size, shape, language or sexual identity have the right to protection from abuse or harm.
-  1. All allegations or suspicions of abuse, neglect, harm and poor practice will be taken seriously and responded to swiftly, fairly and appropriately.
-  1. Working in partnership with other organisations, statutory agencies, parents, carers, children and young people is essential for the welfare of children.
-  1. Children have a right to expect support, and personal and social development delivered by an appropriately recruited, vetted and managed individual in relation to their participation in rugby union, whether they are playing, volunteering or officiating in the community or professional areas of the sport.
-1. Norwich RFC recognises that all children have the right to participate in sport in a safe, positive and enjoyable environment whilst at the same time being protected from abuse, neglect, harm and poor practice.  Norwich RFC recognises that this is the responsibility of everyone involved, in whatever capacity, at the club.
-1. Norwich RFC will implement and comply with the RFU Code of Conduct and the Codes of Conduct for Coaches, Spectators and Officials as appropriate.
-1. The Club Safeguarding Officer is Toby Batch, his contact details are:-Telephone 07788 290179 email tobias@neontribe.co.uk, If you witness or are aware of an incident where the welfare of a child has been put at risk you must, in the first instance, inform the Club Safeguarding Officer.  They will then inform the CB Safeguarding Manager and the RFU Safeguarding Team.  If an incident involves the Club Safeguarding Officer you should inform the Club Secretary, her contact details are:-Vicky Regester Telephone tel:07804 228005 Email vickyregester@gmail.com and either the Eastern Counties Safeguarding Manager or the RFU Safeguarding Team.
-1. All members of Norwich RFC who work with children in Regulated Activity must undertake an RFU Disclosure and Barring Service (DBS) check in accordance with RFU Regulation 21 and submit an application within four weeks of taking up their role. Failure to do so will result in their being removed from their role.
-1.  Norwich RFC will ensure that all its members, whether they are coaches, parents, players or officials will comply with the Best Practice Guidance as issued by the RFU.  In summary, the following are NOT acceptable and will be treated seriously by the club and may result in disciplinary action being taken by the club, the CB or the RFU:
-* Working alone with a child.
-* Consuming alcohol whilst responsible for children.
-* Providing alcohol to children or allowing its supply.
-* Smoking in the presence of children.
-* Humiliating children.
-* Inappropriate or unnecessary physical contact with a child.
-* Participating in, or allowing, contact or physical games with children.
-* Having an intimate or sexual relationship with any child developed as a esult of being in a ‘position of trust.’
-* Making sexually explicit comments or sharing sexually explicit material.
-1. Norwich RFC manages the changing facilities and arranges for them to be supervised by two DBS checked adults of the appropriate gender for the players using the facilities.  No adult is allowed to be in the changing rooms when they are in use by mini and youth players unless they hold a DBS certificate. Norwich RFC ensures that all its coaches, parents, officials and spectators are aware that adults must not change at the same time, using the same facilities as children.
-1. Norwich RFC will ensure that its coaches and team managers and administrators will receive the support and training considered appropriate to their position and role.  The RFU “Managing Challenging Behaviour” Policy has been adopted and circulated amongst the club workforce both, voluntary and paid.
-1. Any events held on Norwich RFC premises must comply with this Policy and if appropriate a Safeguarding Plan should be discussed and circulated to those affected.  Any tours, overseas or domestic, undertaken by Norwich RFC must comply with the relevant RFU Regulations and Guidance relating to tours.
-1. All allegations of bullying between children should be reported to the Club Safeguarding Officer who will seek the assistance of parents and club volunteers to get the bully / bullies to understand the consequences of their actions and seek appropriate restorative action.
+ * The behaviour of children towards each other
+ * The behaviour of staff and volunteers towards children
+ * The behaviour of any visitors or volunteers in our club
+ * The safety of children on trips out of the club
+ * Systems and procedures around the club
+ * The safety of our building and the grounds
+ * Safe use of the internet and social media
+*  Learning about safety through routines and in games and training
 
-Where to find the Issue/Concern Reporting Form and the Safeguarding Children Policy, Guidance & procedures.
+Safeguarding is everyone’s responsibility. We all have a statutory duty to safeguard and promote the welfare of children and at Norwich Rugby Club we take this responsibility seriously. If you have any concerns about a child in our club, you must share this information with one of the club’s Safeguarding Officers. Do not think that your worry is insignificant; we would rather know about something that appears to be minor than miss a situation of concern.
 
-http://www.englandrugby.com/governance/safeguarding/reporting-an-incident
+If you think the matter is very serious and may be related to child protection, for example, physical, emotional, sexual abuse or neglect, you must find one of the designated professionals listed opposite immediately to share your concern. Any concerns you have or anything a child says to you must remain confidential once you have informed a club safeguard- ing officer. If you are unable to locate them ask a member of the club staff to find them and to ask them to speak with you immediately about a confidential and urgent matter. Any concerns regarding a member of staff, volunteer or parent should be reported immediately to a club safeguarding officer. A concern about a club safeguarding officer should be reported to the RFU Regional safeguarding lead. Alternatively, you can contact the RFU Senior Safeguarding team on 0208 831 7479.
 
-Details of Safeguarding Courses available for volunteers.
+## Mobile Phones & Photographs
 
-http://www.englandrugby.com/governance/safeguarding/safeguarding-course-search
+Before taking any photographs of the children you should first check with the team manager/administrator to ensure that there are no children who should not be photographed. Photographs that are taken should not be shared on social media other than sites or pages that Norwich Rugby Club administers. Most year groups have a Facebook page but check with the team manager/administrator.
 
-Any concerns or issues not involving the safeguarding of children and young people should be raised with the Director of Mini Rugby, the Director of Youth Rugby or the Club Secretary.
+## Health & Safety
 
-This policy was approved by the Management Committee of Norwich RFC on 6 September 2016.
+Please report any issues or concerns to a Club Safeguarding Officer (Toby Batch, tobias@neontribe.co.uk. 07968505897 or Vicky Regester, vickyre- gester@gmail.com). First Aid kits can be found behind the bar and with each age groups team manager/administrator.
+
+## Safeguarding Behaviour
+
+All staff, visitors and volunteers are expected to treat each other, and the children with respect and to behave in a professional manner. Visitors and volunteers should avoid being alone with children unless they have a registered DBS check with Norwich Rugby Club. This includes tak- ing children to the toilet. This protects adults from false allegations. If you are asked to supervise children, and you do not have a DBS check with us, please inform the Safeguarding Officer. Every adult in the club has a responsibility to keep children safe. If you are concerned about anything you see or hear around our club, you must let a safeguarding officer know. This includes the behaviour of staff or volunteers. If you have any ideas about how we might make our club even safer please let the safeguarding team know. At Norwich Rugby Club we work together to safeguard and promote the welfare of all our children.
