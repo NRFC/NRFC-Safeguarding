@@ -1,4 +1,6 @@
-# Volunteering
+#### [Safeguarding Home](index.md)
+
+## Volunteering
 
 If you are going to volunteer with NRFC then you will need to complete a disclosure and barring service check(DBS).  The RFU requires you to complete a check with them and does not accept DBS checks from other organisations.  To start one of these checks just contact the safeguarding team with you name and GMS RFU id number. You can find that number on your dashboard https://gms.rfu.com/GMS/Dashboard/Individual.
 
