@@ -1,5 +1,3 @@
-#### [Safeguarding Home](index.md)
-
 ## Norwich RFC Safeguarding Team
 
 The safeguarding phone

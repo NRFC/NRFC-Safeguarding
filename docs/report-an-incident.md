@@ -1,5 +1,3 @@
-#### [Safeguarding Home](index.md)
-
 ## Reporting an incident
 
 If you see an incident that concerns your contact a member of the safeguarding team immediately.

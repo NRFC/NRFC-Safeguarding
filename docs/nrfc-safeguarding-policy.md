@@ -1,5 +1,3 @@
-#### [Safeguarding Home](index.md)
-
 ## Norwich Rugby Football Club Safeguarding Policy
 
 Because children are the future of rugby football it is important that we help them understand rugby union’s values from an early age and set the highest standards as role models, while ensuring their safety and wellbeing.

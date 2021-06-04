@@ -1,4 +1,4 @@
-#### [Safeguarding Home](index.md) | [x](../volunteering)
+#### [Volunteering](../volunteering.md)
 
 ## Age Grade Coaches
 
