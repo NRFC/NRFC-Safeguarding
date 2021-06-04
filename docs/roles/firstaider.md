@@ -2,7 +2,7 @@
 
 ## First Aiders
 
-### role
+### Role
 
 To provide initial First Aid treatment to players in the event of an accident or injury. All NRFC First Aiders must hold a current HSE approved qualification, or the RFU Emergency First Aid in Rugby Union qualification.
 
