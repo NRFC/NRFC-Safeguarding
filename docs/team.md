@@ -14,13 +14,13 @@ Toby Batch, tobias@neontribe.co.uk, 07968505897
 
 Jon Bugg, jonbugg7@gmail.com
 
-#### Assistant Safeguarding Officer, Minis
+#### Assistant Safeguarding Officer, Youth
 
 ![Photo of Jules Waterman](Jules%20Waterman%20.jpg "Jules Waterman")
 
 Jules Waterman, jules.lg@hotmail.co.uk
 
-#### Assistant Safeguarding Officer, Minis
+#### Assistant Safeguarding Officer, Girls
 
 ![Photo of Claire Phillippo](Claire-Honess.jpg "Claire Phillippo")
 
