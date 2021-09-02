@@ -22,7 +22,7 @@ We aim to help all players to achieve their full potential regardless of age, st
 1. If you witness or are aware of an incident where the welfare of a child has been put at risk you must, in the first instance, inform the Club Safeguarding Officer.  They will then inform the CB Safeguarding Manager and the RFU Safeguarding Team.  If an incident involves a Club Safeguarding Officer you should inform either the Eastern Counties Safeguarding Manager or the RFU Safeguarding Team and the Club Secretary, his contact details are:
    * Owen Hanbury
    * Telephone tel: ????????
-   * Email: ?????????
+   * Email: owen.hanbury@sky.com
 1. All members of Norwich RFC who work with children in Regulated Activity must undertake an RFU Disclosure and Barring Service (DBS) check in accordance with RFU Regulation 21 and submit an application within four weeks of taking up their role. Failure to do so will result in their being removed from their role.
 1.  Norwich RFC will ensure that all its members, whether they are coaches, parents, players or officials will comply with the Best Practice Guidance as issued by the RFU.  In summary, the following are NOT acceptable and will be treated seriously by the club and may result in disciplinary action being taken by the club, the CB or the RFU:
     * Working alone with a child.
