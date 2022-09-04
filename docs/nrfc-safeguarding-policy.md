@@ -32,7 +32,7 @@ We aim to help all players to achieve their full potential regardless of age, st
     * Humiliating children.
     * Inappropriate or unnecessary physical contact with a child.
     * Participating in, or allowing, contact or physical games with children.
-    * Having an intimate or sexual relationship with any child developed as a esult of being in a ‘position of trust.’
+    * Having an intimate or sexual relationship with any child developed as a result of being in a ‘position of trust.’
     * Making sexually explicit comments or sharing sexually explicit material.
 1. Norwich RFC manages the changing facilities and arranges for them to be supervised by two DBS checked adults of the appropriate gender for the players using the facilities.  No adult is allowed to be in the changing rooms when they are in use by mini and youth players unless they hold a DBS certificate. Norwich RFC ensures that all its coaches, parents, officials and spectators are aware that adults must not change at the same time, using the same facilities as children.
 1. Norwich RFC will ensure that its coaches and team managers and administrators will receive the support and training considered appropriate to their position and role.  The RFU “Managing Challenging Behaviour” Policy has been adopted and circulated amongst the club workforce both, voluntary and paid.
